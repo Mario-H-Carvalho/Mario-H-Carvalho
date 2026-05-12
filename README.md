@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Mario-H-Carvalho 😁
+## Bem-vindo(a) ao perfil do Mario Carvalho 😁
 
  <div>
    <a href="https://github.com/Mario-H-Carvalho">
